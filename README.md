@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **arunkrishnank47@gmail.com**
 
-- 📄 Know about my experiences [https://in.linkedin.com/in/arunkrishnank?original_referer=](https://in.linkedin.com/in/arunkrishnank?original_referer=)
+- 📄 Know about my experiences [https://in.linkedin.com/in/arunkrishnank?original_referer=](https://in.linkedin.com/in/arunkrishnank)
 
 - ⚡ Fun fact **I'm studying civil engineering**
 
